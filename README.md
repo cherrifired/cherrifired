@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi.. I'll do this after I relearn how to code..
 
 <!--
 **cherrifired/cherrifired** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
