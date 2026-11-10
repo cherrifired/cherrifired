@@ -1,4 +1,5 @@
-## Hi.. I'll do this after I relearn how to code..
+<img width="400" height="400" alt="tumblr_b3704ad83211f2f2965c972b8c34880e_6428d3b0_400" src="https://github.com/user-attachments/assets/d6ef1261-53f4-4905-820a-115c7d057610" />
+
 
 <!--
 **cherrifired/cherrifired** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
