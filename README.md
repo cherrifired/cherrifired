@@ -1,5 +1,4 @@
-<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/9b2b9a5e-967e-415b-af4d-2636f7a0cf01" />
-
+<img width="400" height="400" alt="tumblr_b3704ad83211f2f2965c972b8c34880e_6428d3b0_400" src="https://github.com/user-attachments/assets/d6ef1261-53f4-4905-820a-115c7d057610" />
 
 by @crowdownthestreeteatinggravel on tumblr!
 
